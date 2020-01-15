@@ -1,2 +1,2 @@
 # natassa6910
-Etomasaj için 
+Eromasaj için 
